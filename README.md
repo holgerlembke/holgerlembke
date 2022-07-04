@@ -1,2 +1,2 @@
 
-# [Buy me a coffee!](https://www.buymeacoffee.com/lembke)
+# [Buy me a coffee!](https://paypal.me/lembkeholger)
